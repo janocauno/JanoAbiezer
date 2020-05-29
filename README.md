@@ -1,2 +1,0 @@
-# JanoAbiezer
-ATIVIDADE ED1
